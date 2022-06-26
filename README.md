@@ -14,3 +14,8 @@ So why do you think the wolf was asking her?
 1. because he felt bad about her grandmother and wanted to with Lila to visit her.
 
 ---
+
+De son côté, le **maître kebabiste** n'avait cure de tout cela. Ce qui lui importait, c'était de vendre ses marchandises.  
+> Mon royaume de kebabs sera ~~légendaire~~ ! se disait-il souvent.  
+Malgré son enthousiasme débordant, il ne possédait que quelques sous et trois morceaux de tôle en guide d'étal. Toutes ses économies étaient passées dans l'achat du matériel destiné à produire son art.  
+![Un-bon-kebab](https://boutique.france-kebab.com/img/modules/pwcooking/recipes/16.jpg)
